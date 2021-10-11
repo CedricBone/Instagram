@@ -25,3 +25,4 @@ Here's a walkthrough of implemented user stories in two parts:
 
 <img src='https://media.giphy.com/media/apsUtLF1L3pvP8miFa/giphy.gif' />
 <img src='https://media.giphy.com/media/Qs6uYM5bfSzFmuYoWG/giphy.gif' />
+<img src='https://gfycat.com/valuablescentedaegeancat' />
